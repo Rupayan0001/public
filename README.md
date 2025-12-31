@@ -1,4 +1,4 @@
-Founder & CEO, Chief ASI Architect of Renokon ASI.
+Rupayan Das, Founder & CEO, Chief ASI Architect of Renokon ASI.
 
 The Singularity Architect—The man who maps intelligence, understands the brain, models the universe, designs the math behind it, and builds the vessels to cross it. A physicist, a mathematician, a neuroscientist, a computer scientist & the ASI architect. The unstoppable force behind Renokon ASI. Born to bend reality, to turn improbable into inevitable.
 

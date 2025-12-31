@@ -11,3 +11,6 @@ My purpose behind moving towards creating a world of abundance is to ensure ever
 A world of abundance, a world of possibility, where no child dies of hunger or due to the lack of medical care. No family lives in darkness, no one’s dreams die just because it was born in poverty. Poverty itself must become history. No person works for fulfilling their basic needs but for a greater purpose of humanity.
 
 Success is the only possible outcome, if you are bold enough to bend reality itself. There is no uncertainty, when you are certain about the future. Renokon ASI is not my company, it’s my life’s biggest mission. MISSION ALPHA is the most challenging and transformative mission in the history of mankind. The biggest risk is not taking the risk. Less ambitious and confident people will not change the future of humanity, only the boldest ones will do it. I always plan 10 steps ahead. There is no uncertainty, when you are certain about the future. The future will bend towards my mission, not the other way around. Change is the only constant, the one who doesn’t evolve with time, become irrelevant.” — Rupayan Das, Founder & CEO, Chief ASI Architect
+
+
+https://www.renokonasi.com/rupayan-das

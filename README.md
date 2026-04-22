@@ -1,4 +1,4 @@
-Rupayan Das - The Founder, Chairman, CEO & The Singularity Architect of Renokon ASI.
+Rupayan Das - The Founder & The Permanent Chairman of Renokon Sovereign ASI Partnership.
 
 The man who maps intelligence, understands the brain, models the universe, designs the math behind it, and builds the vessels to cross it. A physicist, a mathematician, a neuroscientist, a computer scientist & the ASI architect. The unstoppable force behind Renokon ASI. Born to bend reality, to turn improbable into inevitable.
 
@@ -8,7 +8,7 @@ History has epochs. Fire. Steam engine. Oil. Electricity. The internet. In 2035,
 
 My purpose behind moving towards creating a world of abundance is to ensure that every person on Earth has access to healthy food, clean water, shelter, advanced medical care, education, and the opportunity to contribute to the growth of humanity through more meaningful jobs and stable income—without any discrimination based on status, wealth, religion, color, gender, or language. Humanity will grow together in a better, safer, and happier world.
 
-Building a world where no child dies of hunger, no one's life is lost due to the absence of advanced medical care, no family lives in darkness, no one’s dream die just because it was born in poverty. Poverty itself must become history. No person will work merely to fulfill basic needs, but for the greater purpose of humanity.” — Rupayan Das, Founder & CEO, Chief ASI Architect
+Building a world where no child dies of hunger, no one's life is lost due to the absence of advanced medical care, no family lives in darkness, no one’s dream die just because it was born in poverty. Poverty itself must become history. No person will work merely to fulfill basic needs, but for the greater purpose of humanity.” — Rupayan Das
 
 
 https://www.renokonasi.com/rupayan-das
